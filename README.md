@@ -1,1 +1,1 @@
-edi readme
+edhi resume 
